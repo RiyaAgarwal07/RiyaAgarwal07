@@ -13,12 +13,18 @@
 
 - ⚡ Fun fact :
 
-  **Hackathon Wizard 🧙‍♀️:** Conquered many hackathons like All India Women Only Hackathon and Hack-The-Metaverse. The code is strong with this one.
+  **Hackathon Wizard 🧙‍♀️:** Conquered many hackathons like All India Women Only Hackathon, Hack-The-Metaverse,etc. The code is strong with this one.
+  
   **Event Maestro 🎉:** Mastermind behind numerous tech and non-tech events in college. My organizational skills can put a Swiss watch to shame.
+  
    **Volunteer Extraordinaire 🌟:** From NGOs to community drives, I’ve lent a hand and heart to making the world a better place.
+  
    **Graceful Dancer 💃:** Classical dancer with moves so smooth, even algorithms can’t predict them!
+  
    **Aquatic Ace 🏊‍♀️:** Swimmer who can probably out-swim a dolphin. Water is my second home.
+  
    **Basketball Pro 🏀:** On the court, I’m the epitome of "nothing but net." Challenge me if you dare!
+  
    **Yoga Enthusiast 🧘‍♀️:** Practicing yoga to keep my mind sharp and my body flexible, ready for the next big challenge.**
 
 ### Blogs posts
